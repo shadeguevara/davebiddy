@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @davebiddy
+- 👋 Hi, I’m @shadeguevara
 - 👀 I’m interested in ... the fall of capitalism
 - 🌱 I’m currently learning ... how to overthrow institutions
 - 💞️ I’m looking to collaborate on ... direct actions
